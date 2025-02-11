@@ -1,0 +1,1 @@
+# Yoshiro-edboi.github.io
